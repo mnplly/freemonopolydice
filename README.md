@@ -1,7 +1,7 @@
 # Free Monopoly Dice - Play and Win Big!
 
- 👉🔴 [Click to PLAY >> PLAY](freedicetools.blogspot.com)
- 👉🔴 [Click to PLAY >> PLAY](freedicetools.blogspot.com)
+ 👉🔴 [Click to PLAY >> PLAY](https://freedicetools.blogspot.com)
+ 👉🔴 [Click to PLAY >> PLAY](https://freedicetools.blogspot.com)
 
 In the exciting world of Monopoly GO, dice rolls are the key to progressing through the game, buying properties, and building your empire. Running out of dice can slow your progress, but the good news is that you can get free Monopoly dice rolls through several simple and fun methods. Here's how you can maximize your rolls and keep the game moving forward!
 
@@ -36,5 +36,5 @@ With free Monopoly dice rolls, you can keep the fun going and dominate the board
 
 Don't wait—roll the dice and build your empire today!
 
- [👉🔴 Click to PLAY >> PLAY](freedicetools.blogspot.com)
- [👉🔴 Click to PLAY >> PLAY](freedicetools.blogspot.com)
+ [👉🔴 Click to PLAY >> PLAY](https://freedicetools.blogspot.com)
+ [👉🔴 Click to PLAY >> PLAY](https://freedicetools.blogspot.com)
